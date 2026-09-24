@@ -12,6 +12,9 @@
 
 ## طرح هدیه
 طرح‌های پیشنهادی را در پوشهٔ design خواهیم گذاشت. نظرتان را در Issues می‌توانید بنویسید.
+اگر حساب گیت‌هاب ندارید، نظرتان را در گروه **دوستان کتابخونه ملی** 👭👬👫📚
+در پیام‌رسان واتس‌اپ بنویسید:
+https://chat.whatsapp.com/JYTlZFSHmSD9n0QzrBeebr?s=cl&p=i&mlu=4&ilr=4P
 
 ---
 A group gift from members of the National Library, Shiraz, to thank the library's
